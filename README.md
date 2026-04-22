@@ -47,5 +47,7 @@ Tunjukkan kemampuan terbaikmu, bangun strategi tim yang solid, dan jadilah juara
 KLik https://forms.gle/pmDQcUuuehcEkLbB9
 
 ---
-*Informasi lebih lanjut hubungi panitia sekolah.*
+*Informasi lebih lanjut hubungi panitia sekolah di ruang RPL atau*
+[![WhatsApp](https://img.shields.io/badge/Chat%20via%20WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/6281234567890?text=Halo%20Admin,%20saya%20tertarik%20dengan%20informasinya)
+
 **SMK N 1 Sanden - Jaya!**
