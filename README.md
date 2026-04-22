@@ -44,6 +44,7 @@ Akan dipilih tim terbaik untuk mewakili sekolah dalam kompetisi:
 ## 🚀 DAFTAR SEKARANG!
 Tunjukkan kemampuan terbaikmu, bangun strategi tim yang solid, dan jadilah juara!
 📣 *Segera daftarkan tim kalian sebelum kuota penuh!*
+KLik https://forms.gle/pmDQcUuuehcEkLbB9
 
 ---
 *Informasi lebih lanjut hubungi panitia sekolah.*
