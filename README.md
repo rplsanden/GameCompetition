@@ -52,7 +52,7 @@ Tunjukkan kemampuan terbaikmu, bangun strategi tim yang solid, dan jadilah juara
 
 
 ---
-*Informasi lebih lanjut hubungi panitia sekolah di ruang RPL SMK N 1 SANDEN atau klik  *
+### Informasi lebih lanjut hubungi panitia sekolah di ruang RPL SMK N 1 SANDEN atau klik  
 [![WhatsApp](https://img.shields.io/badge/Chat%20via%20WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/628813924881?text=Halo%20Admin,%20saya%20tertarik%20dengan%20informasi%20Pendaftaran%20Game%20Kompetisi)
 
 **SMK N 1 Sanden - Jaya!**
