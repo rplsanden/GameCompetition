@@ -19,9 +19,9 @@ Dengan sistem turnamen yang terstruktur, peserta akan merasakan pengalaman kompe
 
 ## 📅 JADWAL KEGIATAN
 *   **📝 Pendaftaran:** Paling lambat **Minggu, 26 April 2026** pukul 21.00 WIB
-*   **📢 Technical Meeting:** Senin, 27 April 2026
-*   **🎮 Pelaksanaan:** Kamis, 30 April – Jumat, 1 Mei 2026
-*   **📍 Tempat Final:** Lab 3 SMKN 1 Sanden
+*   **📢 Technical Meeting:** Senin, 27 April 2026 pukul 8.00-10WIB
+*   **🎮 Pelaksanaan:** Senin, 27 April – Selasa, 28 April 2026 @pukul 10.00WIB
+*   **📍 Final Selasa, 28 April 2026, Tempat Final: Lab 3 SMKN 1 Sanden, waktu: langsung setelah selesai babak pertama.
 
 ---
 
@@ -49,6 +49,6 @@ Daftar>>> https://forms.gle/pmDQcUuuehcEkLbB9
 
 ---
 *Informasi lebih lanjut hubungi panitia sekolah di ruang RPL atau*
-[![WhatsApp](https://img.shields.io/badge/Chat%20via%20WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/6281234567890?text=Halo%20Admin,%20saya%20tertarik%20dengan%20informasinya)
+[![WhatsApp](https://img.shields.io/badge/Chat%20via%20WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/628813924881?text=Halo%20Admin,%20saya%20tertarik%20dengan%20informasinya)
 
 **SMK N 1 Sanden - Jaya!**
