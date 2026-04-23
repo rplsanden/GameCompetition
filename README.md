@@ -1,4 +1,4 @@
-# 📢 PENGUMUMAN E-SPORT: MOBILE LEGENDS 🎮🔥
+# 📢 E-SPORT: MOBILE LEGENDS 🎮🔥
 
 Kompetisi E-Sport Mobile Legend hadir untuk mewadahi minat dan bakat siswa tingkat SMA/SMK/MA sederajat, khususnya bagi siswa aktif **SMK N 1 Sanden** semua jurusan.
 
