@@ -31,6 +31,8 @@ Dengan sistem turnamen yang terstruktur, peserta akan merasakan pengalaman kompe
 3.  ✅ Wajib menjunjung tinggi **sportivitas** dan **menjaga kesopanan**.
 4.  ✅ Mentaati ketentuan Juri, termasuk diskualifikasi apabila tidak menjunjung tinggi kesopanan & sportivitas.
 5.  ✅ Menjaga ketertiban dan aturan di tempat lomba, atau terkena diskualifikasi dan tidak boleh mengikuti lomba sejenis di tahun yang akan datang.
+6.  ✅ Memakai Device/Smartphone sendiri, Panitia tidak menyediakan Device game apapun kecuali canal untuk penayangan.
+7.  ✅ Panitia tidak menyediakan jaringan internet, apabila terkendala menjadi tanggungan peserta.
 
 ---
 
