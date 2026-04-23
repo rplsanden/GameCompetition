@@ -46,8 +46,8 @@ Tunjukkan kemampuan terbaikmu, bangun strategi tim yang solid, dan jadilah juara
 
 📣 *Segera daftarkan tim kalian sebelum kuota penuh!*
 
- [DAFTAR](https://forms.gle/pmDQcUuuehcEkLbB9)
->>> https://forms.gle/pmDQcUuuehcEkLbB9
+ [>>> DAFTAR KLIK DISINI](https://forms.gle/pmDQcUuuehcEkLbB9)
+
 
 ---
 *Informasi lebih lanjut hubungi panitia sekolah di ruang RPL atau*
