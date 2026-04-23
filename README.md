@@ -21,7 +21,7 @@ Dengan sistem turnamen yang terstruktur, peserta akan merasakan pengalaman kompe
 *   **📝 Pendaftaran:** Paling lambat **Minggu, 26 April 2026** pukul 21.00 WIB
 *   **📢 Technical Meeting:** Senin, 27 April 2026 pukul 8.00-10WIB
 *   **🎮 Pelaksanaan:** Senin, 27 April – Selasa, 28 April 2026 @pukul 10.00WIB
-*   **📍 Final Selasa, 28 April 2026, Tempat Final: Lab 3 SMKN 1 Sanden, waktu: langsung setelah selesai babak pertama.
+*   **📍 Final Selasa, 28 April 2026, Tempat Final: Lab 3 SMKN 1 Sanden, waktu: langsung setelah selesai babak pertama
 
 ---
 
