@@ -27,7 +27,7 @@ Dengan sistem turnamen yang terstruktur, peserta akan merasakan pengalaman kompe
 ---
 
 ## 👥 KETENTUAN PESERTA
-1.  ✅ 1 tim terdiri dari 5 pemain siswa aktif SMK N 1 Sanden.
+1.  ✅ 1 tim terdiri dari 5 pemain siswa aktif SMK N 1 Sanden SEMUA JURUSAN kelas X atau XI.
 2.  ✅ Mendapat persetujuan wali kelas (Masing-masing kelas maksimal mengirimkan 2 tim). Diperbolehkan lintas kelas, namun tidak diperbolehkan lintas jurusan.
 3.  ✅ Wajib menjunjung tinggi **sportivitas** dan **menjaga kesopanan**.
 4.  ✅ Mentaati ketentuan Juri, termasuk diskualifikasi apabila tidak menjunjung tinggi kesopanan & sportivitas.
@@ -39,7 +39,7 @@ Dengan sistem turnamen yang terstruktur, peserta akan merasakan pengalaman kompe
 
 ## 🌟 KESEMPATAN EMAS!
 Akan dipilih tim terbaik untuk mewakili sekolah dalam kompetisi:
-🎯 **Reward Dari Sekolah**
+📣 **Reward Dari Sekolah**
 🎯 **PLAY IT Polinema Malang**
 💰 **Total hadiah hingga 50 Juta Rupiah!**
 
