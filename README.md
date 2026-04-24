@@ -1,4 +1,4 @@
-# 📢 E-SPORT: MOBILE LEGENDS 🎮🔥
+# 📢 E-SPORT: MOBILE LEGENDS HUT SMK N 1 SANDEN 🎮🔥
 
 Kompetisi E-Sport Mobile Legend hadir untuk mewadahi minat dan bakat siswa tingkat SMA/SMK/MA sederajat, khususnya bagi siswa aktif **SMK N 1 Sanden** semua jurusan.
 
@@ -22,12 +22,13 @@ Dengan sistem turnamen yang terstruktur, peserta akan merasakan pengalaman kompe
 *   **📢 Technical Meeting:** Senin, 27 April 2026 pukul 8.00-10WIB
 *   **🎮 Pelaksanaan:** Senin, 27 April – Selasa, 28 April 2026 @pukul 10.00WIB
 *   📍 Final Selasa, 28 April 2026, Tempat Final: Lab 3 SMKN 1 Sanden, waktu: langsung setelah selesai babak pertama
+*   📍 Reward dari sekolah akan diserahkan saat HUT SMK N 1 Sanden.
 
 ---
 
 ## 👥 KETENTUAN PESERTA
 1.  ✅ 1 tim terdiri dari 5 pemain siswa aktif SMK N 1 Sanden.
-2.  ✅ Mendapat persetujuan wali kelas (Masing-masing kelas maksimal mengirimkan 2 tim).
+2.  ✅ Mendapat persetujuan wali kelas (Masing-masing kelas maksimal mengirimkan 2 tim). Diperbolehkan lintas kelas, namun tidak diperbolehkan lintas jurusan.
 3.  ✅ Wajib menjunjung tinggi **sportivitas** dan **menjaga kesopanan**.
 4.  ✅ Mentaati ketentuan Juri, termasuk diskualifikasi apabila tidak menjunjung tinggi kesopanan & sportivitas.
 5.  ✅ Menjaga ketertiban dan aturan di tempat lomba, atau terkena diskualifikasi dan tidak boleh mengikuti lomba sejenis di tahun yang akan datang.
@@ -38,6 +39,7 @@ Dengan sistem turnamen yang terstruktur, peserta akan merasakan pengalaman kompe
 
 ## 🌟 KESEMPATAN EMAS!
 Akan dipilih tim terbaik untuk mewakili sekolah dalam kompetisi:
+🎯 **Reward Dari Sekolah**
 🎯 **PLAY IT Polinema Malang**
 💰 **Total hadiah hingga 50 Juta Rupiah!**
 
