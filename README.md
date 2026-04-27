@@ -59,6 +59,7 @@ Catatan untuk pendaftaran -->
 
 **HASIL KOMPETISI**
  [>>> KLIK DISINI  ](https://drive.google.com/file/d/1VlefQyUThWdyuqRvakUHmyVgRw769Iu1/view?usp=sharing)
+
 📣 ***Kepada pemenang kompetisi Juara 1, 2 dan 3 SELAMAT DAN TETAPLAH BERLATIH UNTUK MENGHADAPI PLAY IT Polinema Malang!***
 * Tunggu Informasi dari Panitia
 ---
