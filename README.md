@@ -62,6 +62,13 @@ Catatan untuk pendaftaran -->
 
 📣 ***Kepada pemenang kompetisi Juara 1, 2 dan 3 SELAMAT DAN TETAPLAH BERLATIH UNTUK MENGHADAPI PLAY IT Polinema Malang!***
 * Tunggu Informasi dari Panitia
+
+[![DOKUMENTASI 1](https://img.shields.io/badge/▶️_Play_Music-YouTube-red?style=for-the-badge&logo=youtube)](https://www.youtube.com/live/FvG8YSEgbhA?si=YkQneNxtoal7sQ1H)
+
+[![DOKUMENTASI 2](https://img.shields.io/badge/▶️_Play_Music-YouTube-red?style=for-the-badge&logo=youtube)](https://www.youtube.com/live/FvG8YSEgbhA?si=YkQneNxtoal7sQ1H)
+
+[![DOKUMENTASI 3](https://img.shields.io/badge/▶️_Play_Music-YouTube-red?style=for-the-badge&logo=youtube)](https://www.youtube.com/live/u75FyKNrcos?si=ZuG3-EMPrgyPeP6Z)
+
 ---
 
 #### Informasi lebih lanjut hubungi panitia sekolah di ruang RPL SMK N 1 SANDEN atau klik  
