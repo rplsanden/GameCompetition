@@ -49,16 +49,22 @@ Akan dipilih tim terbaik untuk mewakili sekolah dalam kompetisi:
 
 ## 🚀 PENDAFTARAN DITUTUP!
 Tunjukkan kemampuan terbaikmu, bangun strategi tim yang solid, dan jadilah juara!
-
+<!-- TODO: 
 📣 *Segera daftarkan tim kalian sebelum kuota penuh!*
 
  [>>> DAFTAR KLIK DISINI](https://forms.gle/pmDQcUuuehcEkLbB9)
-
+Catatan untuk pendaftaran -->
 
 ---
+
+**HASIL KOMPETISI**
+ [>>> KLIK DISINI  ](https://drive.google.com/file/d/1VlefQyUThWdyuqRvakUHmyVgRw769Iu1/view?usp=sharing)
+📣 ***Kepada pemenang kompetisi Juara 1, 2 dan 3 SELAMAT DAN TETAPLAH BERLATIH UNTUK MENGHADAPI PLAY IT Polinema Malang!***
+* Tunggu Informasi dari Panitia
+---
+
 #### Informasi lebih lanjut hubungi panitia sekolah di ruang RPL SMK N 1 SANDEN atau klik  
 [![WhatsApp](https://img.shields.io/badge/Chat%20via%20WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/628813924881?text=Halo%20Admin,%20saya%20tertarik%20dengan%20informasi%20Pendaftaran%20Game%20Kompetisi)
 
-**HASIL KOKMPETISI**
 
 **SMK N 1 Sanden - Jaya!**
