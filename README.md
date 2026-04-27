@@ -51,7 +51,6 @@ Akan dipilih tim terbaik untuk mewakili sekolah dalam kompetisi:
 Tunjukkan kemampuan terbaikmu, bangun strategi tim yang solid, dan jadilah juara!
 <!-- TODO: 
 📣 *Segera daftarkan tim kalian sebelum kuota penuh!*
-
  [>>> DAFTAR KLIK DISINI](https://forms.gle/pmDQcUuuehcEkLbB9)
 Catatan untuk pendaftaran -->
 
