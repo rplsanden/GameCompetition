@@ -66,7 +66,7 @@ DOKUMENTASI:
 
 [![DOKUMENTASI 1](https://img.shields.io/badge/▶️_Play_Music-YouTube-red?style=for-the-badge&logo=youtube)](https://www.youtube.com/live/FvG8YSEgbhA?si=YkQneNxtoal7sQ1H)
 
-[![DOKUMENTASI 2](https://img.shields.io/badge/▶️_Play_Music-YouTube-red?style=for-the-badge&logo=youtube)](https://www.youtube.com/live/FvG8YSEgbhA?si=YkQneNxtoal7sQ1H)
+[![DOKUMENTASI 2](https://img.shields.io/badge/▶️_Play_Music-YouTube-red?style=for-the-badge&logo=youtube)](https://www.youtube.com/live/LYuGcuRYiN8?si=FM4d6nEwhAB8COkT)
 
 [![DOKUMENTASI 3](https://img.shields.io/badge/▶️_Play_Music-YouTube-red?style=for-the-badge&logo=youtube)](https://www.youtube.com/live/u75FyKNrcos?si=ZuG3-EMPrgyPeP6Z)
 
