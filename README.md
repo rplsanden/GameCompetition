@@ -1,5 +1,7 @@
 # 📢 E-SPORT: MOBILE LEGENDS HUT SMK N 1 SANDEN 🎮🔥
 
+📣 **LIHAT RELEASE HASIL KOMPETISI ADA DIBAGIAN DIBAWAH**
+
 Kompetisi E-Sport Mobile Legend hadir untuk mewadahi minat dan bakat siswa tingkat SMA/SMK/MA sederajat, khususnya bagi siswa aktif **SMK N 1 Sanden** semua jurusan.
 
 Ajang ini bukan sekadar permainan, tetapi menjadi sarana untuk mengasah:
@@ -45,7 +47,7 @@ Akan dipilih tim terbaik untuk mewakili sekolah dalam kompetisi:
 
 ---
 
-## 🚀 DAFTAR SEKARANG!
+## 🚀 PENDAFTARAN DITUTUP!
 Tunjukkan kemampuan terbaikmu, bangun strategi tim yang solid, dan jadilah juara!
 
 📣 *Segera daftarkan tim kalian sebelum kuota penuh!*
@@ -56,5 +58,7 @@ Tunjukkan kemampuan terbaikmu, bangun strategi tim yang solid, dan jadilah juara
 ---
 #### Informasi lebih lanjut hubungi panitia sekolah di ruang RPL SMK N 1 SANDEN atau klik  
 [![WhatsApp](https://img.shields.io/badge/Chat%20via%20WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/628813924881?text=Halo%20Admin,%20saya%20tertarik%20dengan%20informasi%20Pendaftaran%20Game%20Kompetisi)
+
+**HASIL KOKMPETISI**
 
 **SMK N 1 Sanden - Jaya!**
