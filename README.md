@@ -55,7 +55,7 @@ Tunjukkan kemampuan terbaikmu, bangun strategi tim yang solid, dan jadilah juara
 Catatan untuk pendaftaran -->
 
 ---
-## HASIL KOMPETISI [MOBILE LEGENDS  ](https://drive.google.com/file/d/1VlefQyUThWdyuqRvakUHmyVgRw769Iu1/view?usp=sharing)
+## HASIL KOMPETISI [MOBILE LEGENDS 2026 ](https://drive.google.com/file/d/1VlefQyUThWdyuqRvakUHmyVgRw769Iu1/view?usp=sharing)
 
 DETIL HASIL KOMPETISI
 [>>> KLIK DISINI  ](https://drive.google.com/file/d/1UCy_wPV8MXnqD7pZHfQt9Q6WOsRtER-R/view?usp=sharing)
